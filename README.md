@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nationality-crypto
-- 👀 I’m interested in ... Digital and securities
-- 🌱 I’m currently learning ... How to unite the inward and other galaxies for peoductivity and Security
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in Blockchain, Coding,Digital Assets and securities
+- 🌱 I’m currently learning ... How to unite the inward and other galaxies for productivity and Security
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me ...Twitter @Phili89557 Discord _nationality
 
 <!---
